@@ -3,4 +3,4 @@ WOWWOWOW
 
 ##Vietnian
 
-##Capital of Laos
+##Capital city of Laos
